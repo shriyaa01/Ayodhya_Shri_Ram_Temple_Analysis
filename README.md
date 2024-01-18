@@ -8,6 +8,6 @@ Our analysis covers a wide spectrum of aspects related to the Ayodhya Shri Ram T
 
     Community Engagement: Delve into the engagement of the community, both local and global.
 
-Go to the video tour of project: [link](https://github.com/shriyaa01/Ayodhya_Shri_Ram_Temple_Analysis/assets/100456530/ef36a18f-1149-4186-9808-8c230d635bcf)
+Go to the video tour of project: [link](https://www.linkedin.com/posts/ershriyasrivastava_ayodhyaramtemple-dataanalysis-excel-activity-7153731123141840896-NT0h?utm_source=share&utm_medium=member_desktop)
 
 
